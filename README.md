@@ -1,4 +1,4 @@
-# 👩‍💻 J. Srujan M Raj
+# 👩‍💻 Srujan M Raj
 
 **Full-Stack Developer | Creative Coder | Tech Explorer** [Connect on LinkedIn! 🚀]([https://www.linkedin.com/in/srujanmraj301201/])
 
